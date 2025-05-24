@@ -13,6 +13,7 @@ I'm a passionate **Developer** and **Student** who loves to keep learning and bu
 
 ## 💬 Let's Connect! 
 > Always open to connect, collaborate, and chat about the things that interests us.
+> My portfolio and network are just getting started! Stay tuned
 ---
 
 Thanks for visiting! 🚀
